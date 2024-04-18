@@ -6,7 +6,7 @@
 
 ### About me
 
-With over six years of experience in financial services, specializing in trading desks, I thrive in fast-paced environments and excel at delivering results under pressure. My expertise lies in leveraging data-driven insights to tackle complex challenges and create value for the company.
+With over six years of experience in financial services, mostly in trading desks, I thrive in fast-paced environments and excel at delivering results under pressure. My expertise lies in leveraging data-driven insights to tackle complex challenges and create value for the company.
 
 ### What I'm looking for
 
